@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @VitaminNeedsHelp
+    So yea im kinda stupid...
+     i need help like A LOT
